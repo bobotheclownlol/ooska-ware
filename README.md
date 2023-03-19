@@ -1,1 +1,0 @@
-# ooska-ware
